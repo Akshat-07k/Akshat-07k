@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm a 3rd year Computer Science Student at KIIT University
+I'm a 4rd year Computer Science Student at KIIT University
 
 
 ## 🌐 Socials:
